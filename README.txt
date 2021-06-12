@@ -8,4 +8,4 @@ Credits
 -Designer - Rohin Nana
 -Proggramming - Rohin Nana
 -Artwork - Rohin Nana
--Music - Ethan Luvisia - httpssoundcloud.comuser-719495160medium-rare
+-Music - Ethan Luvisia - https://soundcloud.com/user-719495160/medium-rare
